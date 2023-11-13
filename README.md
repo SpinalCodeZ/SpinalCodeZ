@@ -1,6 +1,6 @@
 - God Loves You!
 
-- 💀 I am SpinalCodeZ and hope you like the work I post. Im new to this coding thing but will keep producing code to improve my skills.
+- 💀 I am SpinalCodeZ and hope you like the work I post. I'm new to this coding thing but will keep producing code to improve my skills.
 
 - 👀 I’m interested in coding for God (I want to glorify The Most High with my work, so expect to see some Christian related stuff in my comments, webpages, etc).
  
